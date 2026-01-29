@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @niih-dreew
 - 👀 I’m interested in ... aprender a programar
 - 🌱 I’m currently learning ... GTI
-- 💞️ I’m looking to collaborate on ...hummm 
+- 💞️ I’m looking to collaborate on ...grandes empresas
 - 📫 How to reach me ... @Niih_Dreew
 - 😄 Pronouns: ...ELA/DELA
 - ⚡ Fun fact: ... estou perdida
